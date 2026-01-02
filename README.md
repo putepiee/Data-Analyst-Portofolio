@@ -1,5 +1,6 @@
 # Data-Analyst-Portofolio
 
-#jhajhjshjsh  
+# jhajhjshjsh  
 kwjkjwkwjkjkwjkwjw  
-wkhkwhkwhwkwhkwh
+wkhkwhkwhwkwhkwh  
+bleeeeeeeeee ndut jelek  aku cantik
